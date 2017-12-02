@@ -1,0 +1,4 @@
+# practice
+
+
+MISCELLANEOUS CODES
